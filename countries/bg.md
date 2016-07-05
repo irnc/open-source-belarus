@@ -1,0 +1,2 @@
+- https://dev.by/lenta/main/v-bolgarii-po-dlya-pravitelstva-obyazali-razrabatyvat-v-open-source
+  - https://www.facebook.com/devbyby/posts/1213411215388173
